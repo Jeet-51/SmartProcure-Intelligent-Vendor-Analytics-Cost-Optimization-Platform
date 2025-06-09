@@ -1,1 +1,0 @@
-# SmartProcure-Intelligent-Vendor-Analytics-Cost-Optimization-Platform
